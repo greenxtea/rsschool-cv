@@ -1,1 +1,1 @@
-https://greenxtea.github.io/rsschool-cv/cv
+https://greenxtea.github.io/rsschool-cv/
